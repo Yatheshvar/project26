@@ -1,0 +1,5 @@
+Notice how I roll out the dough BEFORE chilling it in the refrigerator? That’s my trick and you can see me doing it in the video tutorial above.
+
+Let me explain why I do this. To prevent the cookies from over-spreading, the cookie dough must chill in the refrigerator. Roll out the dough right after you prepare it, then chill the rolled-out dough. (At this point the dough is too soft to cut into shapes.) Don’t chill the cookie dough and then try to roll it out because it will be too cold and difficult to work with. I divide the dough in half before rolling it out and highly recommend you do the same. Smaller sections of dough are simply more manageable.
+
+Another trick! Roll out the cookie dough directly on a silicone baking mat or parchment paper so you can easily transfer it to the refrigerator. Pick it up, put it on a baking sheet, and place it in the refrigerator. If you don’t have enough room for two baking sheets in your refrigerator, stack the pieces of rolled out dough on top of each other.
